@@ -1,6 +1,5 @@
-# Botnet
 
-https://discord.gg/MyZDez3puV
+#https://discord.gg/MyZDez3puV
 
 
  SAPPHIRE NET     (PAYPAL, BTC AND ETH)
